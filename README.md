@@ -71,12 +71,12 @@ I assisted in calculus, introduction to abstract algebra and analysis, and upper
 
 ##### Community Involvement
 
-*Chair, Faculty annual giving campaign, Lakeside School, Seattle, 2016.
-*Admissions Committee member, Lakeside Middle School, Seattle, 2012 – 2015.
-*Participant, Math teacher circle, UW, 2015 – present.
-*Volunteer, Zeno Math festivals and Julia Robinson Math festivals 2006 – present.  
-*Volunteer, Aegis Living, Seattle, 2007 – present.
-*Volunteer, Full Life Care, Seattle. 2010 – 2013. 
-*Finance Committee member, St. Benedict Church, Seattle. 2011 – 2013.
-*Board of Directors, Puget Sound Revels, Tacoma.  1994 – 2006. 
-*School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle.  1994 – 1999.  
+* Chair, Faculty annual giving campaign, Lakeside School, Seattle, 2016.
+* Admissions Committee member, Lakeside Middle School, Seattle, 2012 – 2015.
+* Participant, Math teacher circle, UW, 2015 – present.
+* Volunteer, Zeno Math festivals and Julia Robinson Math festivals 2006 – present.  
+* Volunteer, Aegis Living, Seattle, 2007 – present.
+* Volunteer, Full Life Care, Seattle. 2010 – 2013. 
+* Finance Committee member, St. Benedict Church, Seattle. 2011 – 2013.
+* Board of Directors, Puget Sound Revels, Tacoma.  1994 – 2006. 
+* School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle.  1994 – 1999.  
