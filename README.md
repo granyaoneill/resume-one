@@ -1,5 +1,5 @@
 
-####Granya Marie Visser O'Neill
+#### Granya Marie Visser O'Neill
 ### Education  
 _Master of Arts in Mathematics_  
 	University of California, Davis, June 1985.  
