@@ -58,25 +58,25 @@ I assisted in calculus, introduction to abstract algebra and analysis, and upper
 
 ##### Honors and Awards
 
-Edith May Sliffe Award for Teaching Excellence from the MAA, July 2016.
-National finalist, Rosenthal Prize for Innovation in Math Teaching, 2016.  
-Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle.  June 2015 – present
-Distinguished Teaching Award, St. Benedict School, Seattle.  2004
-Taft Fellow, University of Cincinnati.  September 1985 – June 1987.
-Graduate Fellow, University of California, Davis, CA.  September 1983 – June 1985.
-Departmental Citation for Excellence, University of California, Davis, CA.  June 1983.
-Phi Kappa Phi Honor Society, 1983.
-Pi Mu Epsilon Honor Fraternity, 1982.
+*Edith May Sliffe Award for Teaching Excellence from the MAA, July 2016.
+*Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle.  June 2015 – present
+*National finalist, Rosenthal Prize for Innovation in Math Teaching, 2016.  
+*Distinguished Teaching Award, St. Benedict School, Seattle.  2004
+*Taft Fellow, University of Cincinnati.  September 1985 – June 1987.
+*Graduate Fellow, University of California, Davis, CA.  September 1983 – June 1985.
+*Departmental Citation for Excellence, University of California, Davis, CA.  June 1983.
+*Phi Kappa Phi Honor Society, 1983.
+*Pi Mu Epsilon Honor Fraternity, 1982.
 
 
 ##### Community Involvement
 
-Chair, Faculty annual giving campaign, Lakeside School, Seattle, 2016.
-Admissions Committee member, Lakeside Middle School, Seattle, 2012 – 2015.
-Participant, Math teacher circle, UW, 2015 – present.
-Volunteer, Zeno Math festivals and Julia Robinson Math festivals 2006 – present.  
-Volunteer, Aegis Living, Seattle, 2007 – present.
-Volunteer, Full Life Care, Seattle. 2010 – 2013. 
-Finance Committee member, St. Benedict Church, Seattle. 2011 – 2013.
-Board of Directors, Puget Sound Revels, Tacoma.  1994 – 2006. 
-School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle.  1994 – 1999.  
+*Chair, Faculty annual giving campaign, Lakeside School, Seattle, 2016.
+*Admissions Committee member, Lakeside Middle School, Seattle, 2012 – 2015.
+*Participant, Math teacher circle, UW, 2015 – present.
+*Volunteer, Zeno Math festivals and Julia Robinson Math festivals 2006 – present.  
+*Volunteer, Aegis Living, Seattle, 2007 – present.
+*Volunteer, Full Life Care, Seattle. 2010 – 2013. 
+*Finance Committee member, St. Benedict Church, Seattle. 2011 – 2013.
+*Board of Directors, Puget Sound Revels, Tacoma.  1994 – 2006. 
+*School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle.  1994 – 1999.  
