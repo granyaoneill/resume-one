@@ -1,25 +1,25 @@
 ### **CURRICULUM VITAE**
 
 
-#### Granya Marie Visser O'Neill  
+### Granya Marie Visser O'Neill  
 4742 Thackeray Place NE  
 Seattle, WA  98105  
 206-632-4857  
 granya.oneill@yahoo.com
 
 
-##### Education  
+#### Education  
 _Master of Arts in Mathematics_  
 	University of California, Davis, June 1985.  
 _Bachelor of Science in Mathematics, Magna cum Laude_  
 	University of California, Davis, June 1983.
 	
-##### Professional Experience
+#### Professional Experience
 
-Math Faculty, Lakeside Middle School, Seattle, WA.  
+**Math Faculty, Lakeside Middle School, Seattle, WA.**  
 >I teach seventh grade advanced pre-algebra and sixth grade general math.  In addition, I coach the 5th-8th grade math clubs.  2006 – present.   
 
-Faculty, MathPath, USA  
+**Faculty, MathPath, USA**  
 >Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a summer camp for advanced middle school students.  Summers 2014 –  present.
 
 Math Coach, Seattle Country Day School, Seattle, WA  
