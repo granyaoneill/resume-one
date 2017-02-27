@@ -20,40 +20,40 @@ _University of California, Davis, June 1983._
 >I teach seventh grade advanced pre-algebra and sixth grade general math.  In addition, I coach the 5th-8th grade math clubs.  2006 – present.   
 
 **Faculty, MathPath, USA**  
->Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a summer camp for advanced middle school students.  Summers 2014 –  present.
+>Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a summer camp for advanced middle school students.  Summers 2014 – present.
 
 **Math Coach, Seattle Country Day School, Seattle, WA**  
->At SCDS, I coached a middle school math club.  We developed strategies to solve a wide assortment of challenging problems, did puzzles, celebrated math holidays, and prepared for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool.  1997 – 2011
+>At SCDS, I coached a middle school math club.  We developed strategies to solve a wide assortment of challenging problems, did puzzles, celebrated math holidays, and prepared for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool.  1997 – 2011.
 
 **Summer School Instructor, Lakeside High School, Seattle, WA**  
 >I taught the math portion of an SAT preparation course.  2011, 2012
 
 **Summer Instructor, Robinson Center, University of Washington, Seattle, WA.**  
->I taught a summer course for talented middle school students.  Summer 2006 – 2009
+>I taught a summer course for talented middle school students.  Summers 2006 – 2009.
 
 **Private Math Tutor, Seattle, WA.**  
 >I tutor students at all levels, from elementary school through college.  Some students come for enrichment while others come for support.  1997 – present.
 
 **SSAT (Secondary School Admission Test) Content Provider**  
->I write multiple choice questions for the Enrollment Mangemnt Association (formerly the Educational Records Bureau) to use on their standardized tests, emphasizing problem-solving skills as well as required content areas. 2015 – present.
+>I write multiple choice questions for the Enrollment Management Association (formerly the Educational Records Bureau) to use on their standardized tests, emphasizing problem-solving skills as well as required content areas. 2015 – present.
 
 **Math Teacher, St. Benedict School, Seattle, WA.**  
 >I taught seventh grade pre-algebra and eighth grade algebra.  In addition, I founded and coached the math club. 1998 – 2000, 2003 – 2005. 
 
 **Instructor, Summer High School Entrance Exam Workshop**  
-I taught the math portion of a summer course for middle school students preparing for high school entrance examinations.  Summer 2005.
+>I taught the math portion of a summer course for middle school students preparing for high school entrance examinations.  Summer 2005.
 
 **Instructor, Seattle University, Seattle, WA.**  
-I taught business calculus, calculus for the biological sciences, and both elementary and intermediate algebra.  1993 – 1998.
+>I taught business calculus, calculus for the biological sciences, and both elementary and intermediate algebra.  1993 – 1998.
 
 **Instructor, California State University, Fresno, CA.**  
-My courses included calculus and pre-calculus.  1990 – 1991.
+>My courses included calculus and pre-calculus.  1990 – 1991.
 
 **Instructor, University of Cincinnati, Cincinnati, OH.**  
-I taught probability and statistics.  In addition, I assisted in calculus and introductory survey courses, for which I was responsible for holding weekly class meetings, writing and correcting quizzes, holding office hours, and grading exams.  1985 – 1987.
+>I taught probability and statistics.  In addition, I assisted in calculus and introductory survey courses, for which I was responsible for holding weekly class meetings, writing and correcting quizzes, holding office hours, and grading exams.  1985 – 1987.
 
 **Teaching Assistant, University of California, Davis, CA.**  
-I assisted in calculus, introduction to abstract algebra and analysis, and upper division algebra by correcting homework assignments, holding office hours, and grading exams, as well as giving occasional lectures in number theory.  1984 – 1985.
+>I assisted in calculus, introduction to abstract algebra and analysis, and upper division algebra by correcting homework assignments, holding office hours, and grading exams, as well as giving occasional lectures in number theory.  1984 – 1985.
 
 
 ### Honors and Awards
