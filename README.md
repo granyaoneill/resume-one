@@ -8,13 +8,13 @@ Seattle, WA  98105
 granya.oneill@yahoo.com
 
 
-#### Education  
+### Education  
 _Master of Arts in Mathematics_  
 	University of California, Davis, June 1985.  
 _Bachelor of Science in Mathematics, Magna cum Laude_  
 	University of California, Davis, June 1983.
 	
-#### Professional Experience
+### Professional Experience
 
 **Math Faculty, Lakeside Middle School, Seattle, WA.**  
 >I teach seventh grade advanced pre-algebra and sixth grade general math.  In addition, I coach the 5th-8th grade math clubs.  2006 – present.   
