@@ -20,13 +20,13 @@ _University of California, Davis, June 1983._
 >I teach seventh grade advanced pre-algebra and sixth grade general math.  In addition, I coach the 5th-8th grade math clubs.  2006 – present.   
 
 **Faculty, MathPath, USA**  
->Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a summer camp for advanced middle school students.  Summers 2014 – present.
+>Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a residential summer camp for advanced middle school students.  Summers 2014 – present.
 
 **Math Coach, Seattle Country Day School, Seattle, WA**  
 >At SCDS, I coached a middle school math club.  We developed strategies to solve a wide assortment of challenging problems, did puzzles, celebrated math holidays, and prepared for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool.  1997 – 2011.
 
 **Summer School Instructor, Lakeside High School, Seattle, WA**  
->I taught the math portion of an SAT preparation course.  2011, 2012
+>I taught the math portion of an SAT preparation course.  2011, 2012.
 
 **Summer Instructor, Robinson Center, University of Washington, Seattle, WA.**  
 >I taught a summer course for talented middle school students.  Summers 2006 – 2009.
@@ -59,9 +59,9 @@ _University of California, Davis, June 1983._
 ### Honors and Awards
 
 * Edith May Sliffe Award for Teaching Excellence from the MAA, July 2016.
-* Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle.  June 2015 – present
+* Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle.  June 2015 – present.
 * National finalist, Rosenthal Prize for Innovation in Math Teaching, 2016.  
-* Distinguished Teaching Award, St. Benedict School, Seattle.  2004
+* Distinguished Teaching Award, St. Benedict School, Seattle.  2004.
 * Taft Fellow, University of Cincinnati.  September 1985 – June 1987.
 * Graduate Fellow, University of California, Davis, CA.  September 1983 – June 1985.
 * Departmental Citation for Excellence, University of California, Davis, CA.  June 1983.
