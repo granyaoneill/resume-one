@@ -17,7 +17,7 @@ _University of California, Davis, June 1983._
 ### Professional Experience
 
 **Math Faculty, Lakeside Middle School, Seattle, WA.**  
->I teach seventh grade advanced pre-algebra and sixth grade general math. I designed the curriculum and wrote most of the problem sets for both of these coourses, since I do not use a textbook. In addition to my basic teaching responsislbites, I arrange celebratios of math holidays, invite guest speakers to campus, and host "math parties" during lunch, opportunties for students to play math games, fold mathematical origami, or learn mathematical magic tricks.  Finally, I coach the 5th-8th grade math clubs.  Here, we develop strategies to solve a wide assortment of challenging problems, do puzzles, and prepare for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool.  2006 – present.   
+>I teach seventh grade advanced pre-algebra and sixth grade general math. I designed the curriculum and wrote most of the problem sets for both of these courses, since I do not use a textbook. In addition to my basic teaching responsibilities, I arrange celebrations of math holidays, invite guest speakers to campus, and host "math parties" during lunch, opportunities for students to play math games, fold mathematical origami, or learn mathematical magic tricks. Finally, I coach the 5th-8th grade math clubs. Here, we develop strategies to solve a wide assortment of challenging problems, do puzzles, and prepare for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool. 2006 – present.   
 
 **Faculty, MathPath, USA**  
 >Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a residential summer camp for advanced middle school students.  Summers 2014 – present.
@@ -59,24 +59,24 @@ _University of California, Davis, June 1983._
 ### Honors and Awards
 
 * Edith May Sliffe Award for Teaching Excellence from the MAA, July 2016.
-* Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle.  June 2015 – present.
+* Schlaepfer Family Endowed Faculty Chair in Mathematics, Lakeside School, Seattle, WA, June 2015 – present.
 * National finalist, Rosenthal Prize for Innovation in Math Teaching, 2016.  
-* Distinguished Teaching Award, St. Benedict School, Seattle.  2004.
-* Taft Fellow, University of Cincinnati.  September 1985 – June 1987.
-* Graduate Fellow, University of California, Davis, CA.  September 1983 – June 1985.
-* Departmental Citation for Excellence, University of California, Davis, CA.  June 1983.
+* Distinguished Teaching Award, St. Benedict School, Seattle, WA, 2004.
+* Taft Fellow, University of Cincinnati, Cincinnati, OH, September 1985 – June 1987.
+* Graduate Fellow, University of California, Davis, CA, September 1983 – June 1985.
+* Departmental Citation for Excellence, University of California, Davis, CA,  June 1983.
 * Phi Kappa Phi Honor Society, 1983.
 * Pi Mu Epsilon Honor Fraternity, 1982.
 
 
 ### Community Involvement
 
-* Chair, Faculty annual giving campaign, Lakeside School, Seattle, 2016.
-* Admissions Committee member, Lakeside Middle School, Seattle, 2012 – 2015.
-* Participant, Math teacher circle, UW, 2015 – present.
-* Volunteer, Zeno Math festivals and Julia Robinson Math festivals 2006 – present.  
-* Volunteer, Aegis Living, Seattle, 2007 – present.
-* Volunteer, Full Life Care, Seattle. 2010 – 2013. 
-* Finance Committee member, St. Benedict Church, Seattle. 2011 – 2013.
-* Board of Directors, Puget Sound Revels, Tacoma.  1994 – 2006. 
-* School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle.  1994 – 1999.  
+* Chair, Faculty annual giving campaign, Lakeside School, Seattle, WA, 2016.
+* Admissions Committee member, Lakeside Middle School, Seattle, WA, 2012 – 2015.
+* Participant, Math teacher circle, University of Washington, Seattle, WA, 2015 – present.
+* Volunteer, Zeno Math festivals and Julia Robinson Math festivals, Seattle, WA, 2006 – present.  
+* Volunteer, Aegis Living, Seattle, WA, 2007 – present.
+* Volunteer, Full Life Care, Seattle, WA, 2010 – 2013. 
+* Finance Committee member, St. Benedict Church, Seattle, WA, 2011 – 2013.
+* Board of Directors, Puget Sound Revels, Tacoma, WA, 1994 – 2006. 
+* School Commission President, Finance Committee Chair, Commissioner, St. Benedict School, Seattle, WA, 1994 – 1999.  
