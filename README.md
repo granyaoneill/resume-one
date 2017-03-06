@@ -17,7 +17,7 @@ _University of California, Davis, June 1983._
 ### Professional Experience
 
 **Math Faculty, Lakeside Middle School, Seattle, WA.**  
->I teach seventh grade advanced pre-algebra and sixth grade general math.  In addition, I coach the 5th-8th grade math clubs.  2006 – present.   
+>I teach seventh grade advanced pre-algebra and sixth grade general math. I designed the curriculum and wrote most of the problem sets for both of these coourses, since I do not use a textbook. In addition to my basic teaching responsislbites, I arrange celebratios of math holidays, invite guest speakers to campus, and host "math parties" during lunch, opportunties for students to play math games, fold mathematical origami, or learn mathematical magic tricks.  Finally, I coach the 5th-8th grade math clubs.  Here, we develop strategies to solve a wide assortment of challenging problems, do puzzles, and prepare for regional and state math competitions including Mathcounts, the Washington State Math Championships, and Math is Cool.  2006 – present.   
 
 **Faculty, MathPath, USA**  
 >Each year, I teach several breakout sessions in combinatorial proof writing, mathematical induction, GeoGebra and Geometer’s Sketchpad, and AMC and Mathcounts contest preparation at a residential summer camp for advanced middle school students.  Summers 2014 – present.
